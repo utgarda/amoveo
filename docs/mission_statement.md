@@ -15,8 +15,8 @@ When they print money, they are robbing everyone, they are pushing us towards th
 
 When money flows from a centralized source, the resulting economy is filled with hierarchies and pyramids. Everyone is begging for handouts from the counterfeiters. In order to survive in this environment, you need a way to lobby the counterfeiters, and you need to be compliant with the rules that the counterfeiter's enforce. The most effective way to lobby and to meet compliance is by teaming up together into large centralized institutions.
 
-When preditors are around, fish form schools for safety.
-When counterfeiters are aroun, humans form centralized institutions like corporations for safety.
+When predators are around, fish form schools for safety.
+When counterfeiters are around, humans form centralized institutions like corporations for safety.
 
 
 # Derivatives are for insurance
